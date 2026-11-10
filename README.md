@@ -1,0 +1,1 @@
+# Dicionario_de_Dados_ERP_Gestao_Operacional
